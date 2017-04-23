@@ -1,2 +1,2 @@
 # hello-world
-just another repository
+hey guys i am gourav here i love to code and nowadays learning it dont bielieve in talking much.
